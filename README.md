@@ -1,6 +1,6 @@
 
 
-- I’m currently working on your mom
+- I’m currently working on a really stupid game and your mom
 - I’m currently learning sexual positions
 - I’m looking to collaborate on a relationship :(
 - I’m looking for help with world domination
